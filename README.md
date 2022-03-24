@@ -18,4 +18,4 @@
 
 
 <br>
-Apaixonado por técnologia , e de transformar a vida das pessoas atravéz da programação !
+Apaixonado por técnologia , e de transformar a vida das pessoas através da programação !
